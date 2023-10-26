@@ -1,4 +1,7 @@
 ### Hi im Angel 👋
+### Im 19 years old and im studing 3d animation on Cev Barcelona.
+
+
 
 <!--
 **Angelgarza2A/Angelgarza2A** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
