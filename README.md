@@ -7,6 +7,7 @@ I use:
 - After effects
 - Blender
 - Photoshop
+  ![](https://1000logos.net/wp-content/uploads/2023/04/Autodesk-Maya-logo.png)
 
   My art Station:
 https://www.artstation.com/angelgarzagarciab-ts3dv1ma22233
