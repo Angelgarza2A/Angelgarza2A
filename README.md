@@ -1,6 +1,15 @@
 ### Hi im Angel 👋
 ### Im 19 years old and im studing 3d animation on Cev Barcelona.
+I use:
+- Maya
+- Zbrush
+- Premiere
+- After effects
+- Blender
+- Photoshop
 
+  My art Station:
+https://www.artstation.com/angelgarzagarciab-ts3dv1ma22233
 
 
 <!--
